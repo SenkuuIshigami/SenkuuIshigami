@@ -2,6 +2,9 @@
 
 # NUMBER 1 SENKU FAN NUMBER 1 GEN FAN NUMBER 1 LUNA FAN NUMBER 2 ryusui fan because this guy named Mac is worse than me NUMBER 1 SUIKA FAN NUMBER 1 CHROME FAN NUMBER 1 XENO FAN NUMBER 1 STANLEY FAN NUMBER 1 NIKKI FAN
 
+<div align="center">
+<img width="486" height="486" alt="image" src="https://github.com/user-attachments/assets/4559e5dc-1780-4cac-b017-546547819fb4" />
+
 ---
 
 <div align="center">
