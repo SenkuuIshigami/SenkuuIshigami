@@ -1,11 +1,15 @@
-### i have really bad autism unfortunately ummm yeah this guy is ruining my life
+## im doing this some what for real now
 
-# NUMBER 1 SENKU FAN NUMBER 1 GEN FAN NUMBER 1 LUNA FAN NUMBER 2 ryusui fan because this guy named Mac is worse than me NUMBER 1 SUIKA FAN NUMBER 1 CHROME FAN NUMBER 1 XENO FAN NUMBER 1 STANLEY FAN NUMBER 1 NIKKI FAN NUMBER 1 JOEL FAN NUMBER 1 YUZURIHA FAN NUMBER 1 TAIJU FAN NUMBER 1 BYAKUYA FAN
-
-i didnt know what else to put sorry im normal this is a joke
+### hi i stein , silly and joyous .. come talk to me . whispering is prefered because im offtab or not paying attention always ,, do not fear . i promise i am more scared than you are sigh . i need to socialize so bad .. ALSO i love c+h if we are friends plsplspsls if you need a cuddy buddy i am your man . ..
 
 <div align="center">
 <img width="486" height="486" alt="image" src="https://github.com/user-attachments/assets/4559e5dc-1780-4cac-b017-546547819fb4" />
+
+real face i make every 2 seconds if you were wondering
+
+<div align="left">
+did you know i love luna i love luna so bad luna number 1 fan my girl my star shes so everything i need to draw her in every outfit i see ask me about my luna drawings i will show you .
+im also ill about senku and gen ok its bad . green purple pink gang ohh my gawwd
 
 ---
 
