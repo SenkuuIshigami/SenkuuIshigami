@@ -1,6 +1,6 @@
 ## im doing this some what for real now
 
-### hi i stein , silly and joyous .. come talk to me . whispering is prefered because im offtab or not paying attention always ,, do not fear . i promise i am more scared than you are sigh . i need to socialize so bad .. ALSO i love c+h if we are friends plsplspsls if you need a cuddy buddy i am your man . .. 
+### hi i stein , silly and joyous .. come talk to me . whispering is prefered because im offtab or not paying attention always ,, do not fear . i promise i am more scared than you are sigh . i need to socialize so bad .. ALSO i love c+h if we are friends plsplspsls if you need a cuddle buddy i am your man . .. 
 
 ### mini map is open 24/7 i see you ,, imagine im looking at you like a dog at an adoption center but my eyes are huge and im pressed against the glass paws on the window tears in myeyes 
 
